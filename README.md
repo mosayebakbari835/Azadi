@@ -1,0 +1,2 @@
+# Azadi
+For all
